@@ -1,5 +1,8 @@
 # 2026-Multimedia-Programming
 
+## GrandMA3
+[GrandMA3 onPC](https://www.malighting.com/downloads/products/grandma3/)    
+[V3000]([https://www.martin.com/en/products/era-600-profile](https://www.manualslib.com/manual/825370/Vari-Lite-Vl3000-Series.html?page=36#manual))
 
 ## References
 
