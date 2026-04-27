@@ -2,7 +2,7 @@
 
 ## GrandMA3
 [GrandMA3 onPC](https://www.malighting.com/downloads/products/grandma3/)    
-[Vl3000](https://www.manualslib.com/manual/825370/Vari-Lite-Vl3000-Series.html?page=36#manual)
+[Maverick Force 1 Spot](https://chauvetprofessional.com/product/maverick-force-1-spot/#specs)
 
 ## References
 
