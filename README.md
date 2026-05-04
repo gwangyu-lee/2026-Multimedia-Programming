@@ -1,5 +1,8 @@
 # 2026-Multimedia-Programming
 
+## GrandMA3
+[GrandMA3 onPC](https://www.malighting.com/downloads/products/grandma3/)    
+[Maverick Force 1 Spot](https://chauvetprofessional.com/product/maverick-force-1-spot/#specs)
 
 ## References
 
